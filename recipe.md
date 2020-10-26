@@ -1,0 +1,2 @@
+# MakeTheCurry
+    to make the curry first cut down the boilled potatos into the utencil which will contain 300 ml water which will boil at slow flame. After that pour 1.5 ml oil of your choice. mix the salt. then then add black pepper or any pepper in the curry. it is your choice to add garlic and onion. now cover the lid of the utencil with anything but solid. after 5 minutes the curry will be tasty.{😋😋😋😋😋😋😋😋😋😋😋}. if you want to make a dry potato vegitable the use the same method but do not use water. 

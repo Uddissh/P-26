@@ -1,0 +1,2 @@
+# RecipeOfPotatoCurry
+potato was an indian dish which became popular by the dutch and the british during the ancient time. potato is used almost all over the world at this time. it is high rich in carbohydrates and a littel fat. it is used in curry vegitables and in dry vegitables. mostly potato peas tomato is cooked and eaten all over india. so in the next file i will tell you the recipe of potato curry. {P.S. THIS IS NOT A FAST FOOD} = 🤣😂
